@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Gangandeep @GaganBTS
+- 👀 I’m a python developer, web developer and a data scientist.
+- 📫 Email me: gsinghpathania01@gmail.com for collaboration or more.
+- 🔊 I am also a music, movies and fitness afficionado.
+- 🙋‍♂️ Currently I am a college student and pursuing my B.tech computer science.
