@@ -4,3 +4,4 @@
 - 🖊 I love writing....check out my blogs about health and fitness at https://www.smarttrainee.health.blog 
 - 🔊 I am also a music, movies and fitness afficionado.
 - 🙋‍♂️ Currently I am a college student and pursuing my B.tech computer science.
+- 🔔 My youtube channel - https://www.youtube.com/channel/UC2FQnATu7MTJnRtwyIEa6Yg
